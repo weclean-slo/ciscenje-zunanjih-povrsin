@@ -2,7 +2,7 @@
 
 Profesionalno, varno in učinkovito čiščenje fasade po vsej Sloveniji. Vaši fasadi odstranimo alge in umazanijo ter ji povrnemo njen prvotni videz.
 
-![Fasada – Pred in po čiščenju](./fasada-example-1.jpg)
+[profesionalno čiščenje fasade](https://weclean.si/ciscenje-fasade/)
 
 ---
 
